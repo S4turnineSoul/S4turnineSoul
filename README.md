@@ -21,6 +21,12 @@
 </a>
 </p>
 
+<div style="text-align: center;">
+    <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjtzcmpvhhe65n4f2e2zmfjvba&redirect=true">
+        <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjtzcmpvhhe65n4f2e2zmfjvba&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false" alt="Spotify Profile">
+    </a>
+</div> ❤
+
 ---
 
 <h2 align="center" style="font-family: 'Fira Code', monospace; color: #b0a93f;">
