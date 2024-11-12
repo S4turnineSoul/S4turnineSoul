@@ -27,6 +27,8 @@
     </a>
 </div>
 
+<img src="https://files.catbox.moe/0bw208.png" alt="Centered Image">
+
 ---
 
 <h2 align="center" style="font-family: 'Fira Code', monospace; color: #b0a93f;">
@@ -61,11 +63,12 @@
 ⋆⭒˚💘⋆𝐈’𝐦 𝐬𝐭𝐢𝐥𝐥 𝐬𝐞𝐥𝐟-𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫𝐢𝐧𝐠! 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐟𝐫𝐨𝐦 𝐥𝐢𝐟𝐞⋆˚🪐˖°
 
 </p>
-
 <h3 align="center">OOPS! :O </h3>
 <p align="center">
   <img src="https://github-readme-stats.vercel.app/api?username=S4turnineSoul!:(&show_icons=true&theme=radical" alt="GitHub Stats" />
 </p>
+
+<img src="https://files.catbox.moe/jelviw.png" alt="Centered Image">
 
 ---
 
