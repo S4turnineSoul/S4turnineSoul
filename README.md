@@ -27,6 +27,8 @@
     </a>
 </div>
 
+---
+
 <img src="https://files.catbox.moe/0bw208.png" alt="Centered Image">
 
 ---
@@ -38,6 +40,10 @@
     <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7E466&center=true&vCenter=true&width=435&lines=Surrounded+by+my+beautiful+rings+%3C3" alt="Typing SVG" />
   </a>
 </h2>
+
+<p align="center">
+  <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
+</p>
 
 <p align="center">
   <img src="https://i.postimg.cc/yYbfPnRd/image-removebg-preview-1.png" alt="!" style="border-radius: 50; width: 300;" />
@@ -61,6 +67,40 @@
 ⋆౨ৎ⭐˚⟡˖࣪𝐈 𝐬𝐭𝐫𝐢𝐯𝐞 𝐭𝐨 𝐮𝐧𝐝𝐞𝐫𝐬𝐭𝐚𝐧𝐝 𝐦𝐲 𝐟𝐞𝐞𝐥𝐢𝐧𝐠𝐬 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫𝐬˖ִ🌙࣪⚝⊹˚
   <p align="center">
 ⋆⭒˚💘⋆𝐈’𝐦 𝐬𝐭𝐢𝐥𝐥 𝐬𝐞𝐥𝐟-𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫𝐢𝐧𝐠! 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐟𝐫𝐨𝐦 𝐥𝐢𝐟𝐞⋆˚🪐˖°
+
+<p align="center">
+  <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
+</p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/gm81y5.webp" />
+</p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
+</p>
+
+<p align="center">
+𝐈𝐟 𝐈 𝐝𝐨𝐧’𝐭 𝐫𝐞𝐬𝐩𝐨𝐧𝐝 𝐢𝐦𝐦𝐞𝐝𝐢𝐚𝐭𝐞𝐥𝐲 𝐈'𝐦 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 𝐀𝐅𝐊/𝐎𝐟𝐟𝐭𝐚𝐛.
+  <p align="center">
+𝐏𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧’𝐭 𝐚𝐩𝐩𝐫𝐨𝐚𝐜𝐡 𝐦𝐞 𝐟𝐨𝐫 𝐫𝐨𝐥𝐞𝐩𝐥𝐚𝐲; 𝐈 𝐝𝐨𝐧'𝐭 𝐞𝐧𝐣𝐨𝐲 𝐢𝐭 𝐦𝐮𝐜𝐡.
+  <p align="center">
+𝐈’𝐝 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞 𝐢𝐭 𝐢𝐟 𝐲𝐨𝐮 𝐜𝐨𝐮𝐥𝐝 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐦𝐞 𝐟𝐢𝐫𝐬𝐭 𝐚𝐬 𝐈’𝐦 𝐨𝐟𝐭𝐞𝐧 𝐨𝐟𝐟𝐭𝐚𝐛.
+  <p align="center">
+𝐈𝐟 𝐈 𝐟𝐞𝐞𝐥 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞 𝐈’𝐥𝐥 𝐛𝐥𝐨𝐜𝐤 𝐩𝐞𝐫𝐦𝐚𝐧𝐞𝐧𝐭𝐥𝐲 𝐰𝐢𝐭𝐡 𝐧𝐨 𝐟𝐮𝐫𝐭𝐡𝐞𝐫 𝐝𝐢𝐬𝐜𝐮𝐬𝐬𝐢𝐨𝐧.
+  <p align="center">
+𝐃𝐨𝐧’𝐭 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧/𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬. 𝐌𝐲 𝐚𝐧𝐬𝐰𝐞𝐫 𝐢𝐬 𝐚𝐥𝐰𝐚𝐲𝐬 𝐧𝐨 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤𝐞𝐝.
+  <p align="center">
+
+<p align="center">
+  <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
+</p>
+
+---
+
+<img src="https://files.catbox.moe/kmek11.png" alt="Centered Image">
+
+---
 
 </p>
 <h3 align="center">OOPS! :O </h3>
