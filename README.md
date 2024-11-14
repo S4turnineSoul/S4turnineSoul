@@ -92,6 +92,10 @@
 𝐃𝐨𝐧’𝐭 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧/𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬. 𝐌𝐲 𝐚𝐧𝐬𝐰𝐞𝐫 𝐢𝐬 𝐚𝐥𝐰𝐚𝐲𝐬 𝐧𝐨 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤𝐞𝐝.
   <p align="center">
 
+  <p align="center">
+  <img src="https://media.tenor.com/925LDfyVUGEAAAAj/cute-sad.gif" alt="Alt text"/> 
+</p>
+
 <p align="center">
   <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
 </p>
