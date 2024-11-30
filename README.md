@@ -46,10 +46,6 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/yYbfPnRd/image-removebg-preview-1.png" alt="!" style="border-radius: 50; width: 300;" />
-</p>
-
-<p align="center">
 🧸ྀི𝐈'𝐦 𝐚𝐧 𝐞𝐦𝐨𝐭𝐢𝐨𝐧𝐚𝐥𝐥𝐲 𝐢𝐧𝐭𝐫𝐢𝐜𝐚𝐭𝐞 𝐟𝐢𝐠𝐮𝐫𝐞.ೃ࿔*:🤍･
   <p align="center">
 ࣪🌙ִֶָ.𝐌𝐲 𝐬𝐞𝐧𝐬𝐢𝐭𝐢𝐯𝐢𝐭𝐲 𝐢𝐬 𝐛𝐨𝐭𝐡 𝐚 𝐠𝐢𝐟𝐭 𝐚𝐧𝐝 𝐚 𝐛𝐮𝐫𝐝𝐞𝐧💗✮⋆˙
