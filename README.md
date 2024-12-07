@@ -46,27 +46,7 @@
 </p>
 
 <p align="center">
-🧸ྀི𝐈'𝐦 𝐚𝐧 𝐞𝐦𝐨𝐭𝐢𝐨𝐧𝐚𝐥𝐥𝐲 𝐢𝐧𝐭𝐫𝐢𝐜𝐚𝐭𝐞 𝐟𝐢𝐠𝐮𝐫𝐞.ೃ࿔*:🤍･
-  <p align="center">
-࣪🌙ִֶָ.𝐌𝐲 𝐬𝐞𝐧𝐬𝐢𝐭𝐢𝐯𝐢𝐭𝐲 𝐢𝐬 𝐛𝐨𝐭𝐡 𝐚 𝐠𝐢𝐟𝐭 𝐚𝐧𝐝 𝐚 𝐛𝐮𝐫𝐝𝐞𝐧💗✮⋆˙
-  <p align="center">
-༘⋆₊🔭๋࣭⊹𝐈 𝐬𝐞𝐞𝐦 𝐝𝐢𝐬𝐭𝐚𝐧𝐭 𝐛𝐮𝐭 𝐈 𝐡𝐨𝐥𝐝 𝐚 𝐝𝐞𝐞𝐩 𝐞𝐦𝐩𝐚𝐭𝐡𝐲⭑🌌⋆｡˚
-  <p align="center">
-⁺₊💙✧𝐎𝐯𝐞𝐫𝐰𝐡𝐞𝐥𝐦𝐢𝐧𝐠 𝐜𝐡𝐚𝐥𝐥𝐞𝐧𝐠𝐞𝐬 𝐚𝐫𝐢𝐬𝐞 𝐟𝐫𝐨𝐦 𝐦𝐲 𝐬𝐨𝐫𝐫𝐨𝐰.💫⋆☾
-  <p align="center">
-*ੈ♡🪐༘⋆𝐈 𝐏𝐫𝐞𝐟𝐞𝐫 𝐡𝐨𝐧𝐞𝐬𝐭𝐲! 𝐄𝐯𝐞𝐧 𝐰𝐡𝐞𝐧 𝐢𝐭 𝐡𝐮𝐫𝐭𝐬 𝐭𝐡𝐚𝐧 𝐜𝐨𝐦𝐟𝐨𝐫𝐭༄˖°⭐.
-  <p align="center">
-˚˖𓍢ִ໋🎀͙֒✧𝐀𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞𝐬 𝐭𝐡𝐨𝐬𝐞 𝐰𝐡𝐨 𝐭𝐫𝐲 𝐭𝐨 𝐮𝐧𝐝𝐞𝐫𝐬𝐭𝐚𝐧𝐝 𝐦𝐲 𝐩𝐞𝐫𝐬𝐨𝐧𝐚𝐥𝐢𝐭𝐲˚.💟⋆
-  <p align="center">
-‧₊🪐✩₊˚𝐈 𝐟𝐢𝐧𝐝 𝐬𝐨𝐥𝐚𝐜𝐞 𝐢𝐧 𝐭𝐡𝐞 𝐦𝐨𝐦𝐞𝐧𝐭𝐬 𝐨𝐟 𝐛𝐞𝐚𝐮𝐭𝐲 𝐚𝐧𝐝 𝐜𝐨𝐦𝐟𝐨𝐫𝐭.🎧⊹♡
-  <p align="center">
-⋆౨ৎ⭐˚⟡˖࣪𝐈 𝐬𝐭𝐫𝐢𝐯𝐞 𝐭𝐨 𝐮𝐧𝐝𝐞𝐫𝐬𝐭𝐚𝐧𝐝 𝐦𝐲 𝐟𝐞𝐞𝐥𝐢𝐧𝐠𝐬 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫𝐬˖ִ🌙࣪⚝⊹˚
-  <p align="center">
 ⋆⭒˚💘⋆𝐈’𝐦 𝐬𝐭𝐢𝐥𝐥 𝐬𝐞𝐥𝐟-𝐝𝐢𝐬𝐜𝐨𝐯𝐞𝐫𝐢𝐧𝐠! 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐟𝐫𝐨𝐦 𝐥𝐢𝐟𝐞⋆˚🪐˖°
-
-<p align="center">
-  <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
-</p>
 
 <p align="center">
   <img src="https://files.catbox.moe/gm81y5.webp" />
@@ -88,10 +68,6 @@
 𝐃𝐨𝐧’𝐭 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧/𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬. 𝐌𝐲 𝐚𝐧𝐬𝐰𝐞𝐫 𝐢𝐬 𝐚𝐥𝐰𝐚𝐲𝐬 𝐧𝐨 𝐢𝐟 𝐲𝐨𝐮 𝐚𝐬𝐤𝐞𝐝.
   <p align="center">
 
-  <p align="center">
-  <img src="https://media.tenor.com/925LDfyVUGEAAAAj/cute-sad.gif" alt="Alt text"/> 
-</p>
-
 <p align="center">
   <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> <img src="https://files.catbox.moe/ovpms4.webp" alt="Alt text"/> 
 </p>
@@ -101,13 +77,9 @@
 <img src="https://files.catbox.moe/kmek11.png" alt="Centered Image">
 
 ---
-
-</p>
-<h3 align="center">OOPS! :O </h3>
 <p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=S4turnineSoul!:(&show_icons=true&theme=radical" alt="GitHub Stats" />
-</p>
-
+𝐉𝐮𝐩𝐢𝐭𝐮𝐫𝐧 𝐫𝐞𝐚𝐥 𝐭𝐫𝐮𝐬𝐭!!🙏🏻
+  </p>
 <img src="https://files.catbox.moe/jelviw.png" alt="Centered Image">
 
 ---
